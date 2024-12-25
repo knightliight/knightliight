@@ -1,2 +1,3 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![zelink-comic](https://github.com/user-attachments/assets/4fe46e87-2492-46cf-8f07-828aa1047bc3)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![IMG_1314](https://github.com/user-attachments/assets/55d61a3b-e241-4e25-aa9b-2364904e1eb6)
+
 
